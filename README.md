@@ -12,7 +12,6 @@ meu nome **Enzo**
 
 @mnr_enzo01
 
-
 ![](https://media1.tenor.com/m/olZlJFMcImAAAAAd/haters-gonna-hate-kid.gif)
 
 
