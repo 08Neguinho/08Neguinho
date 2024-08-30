@@ -14,7 +14,7 @@ meu nome **Enzo**
 
 
 
-![](https://media1.tenor.com/m/olZlJFMcImAAAAAd/haters-gonna-hate-kid.gif)
+![](https://media1.tenor.com/m/8T4RnXr8wQ8AAAAC/taylor-swift-cheers.gif)
 
 
 
